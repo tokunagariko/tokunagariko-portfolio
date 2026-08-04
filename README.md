@@ -1,2 +1,0 @@
-# tokunagariko-portfolio
-
